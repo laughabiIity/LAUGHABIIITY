@@ -1,4 +1,6 @@
-## Hi there 👋
+laugh big fan i am miles btw lmao
+my main accs r @evbomc n @bubbleguppytrio
+i am laughsbility trusttt
 
 <!--
 **laughabiIity/LAUGHABIIITY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
